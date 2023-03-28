@@ -1,5 +1,10 @@
 ### Hi there 👋
 
+Luis Ramos
+- 🤔 I’m looking for help with tech things because i am not great at this.
+
+
+
 <!--
 **Lr879582/lr879582** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
