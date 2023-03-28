@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Luis Ramos
+ My name is Luis Ramos
 - 🤔 I’m looking for help with tech things because i am not great at this.
 
 
