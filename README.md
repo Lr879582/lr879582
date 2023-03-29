@@ -6,7 +6,7 @@
 - I wanna have my own mechanic buisness one day :>
 - if i do end up having a business then i will make a alot of money which will go to my family so i can thank them for everything.<img 
 
-<img src="https://parade.com/.image/t_share/MTk1MDI2NTUyNTA3ODY4ODk4/best-smile-quotes.png" alt="150 Smile Quotes—Quotes to Get You Smiling - Parade: Entertainment,  Recipes, Health, Life, Holidays"/>![image](https://user-images.githubusercontent.com/128845302/228640772-930a6b45-ac27-45ec-8bda-9d7175d61741.png)
+<img src="https://parade.com/.image/t_share/MTk1MDI2NTUyNTA3ODY4ODk4/best-smile-quotes.png" alt="150 Smile Quotes—Quotes to Get You Smiling 
 
 
 
